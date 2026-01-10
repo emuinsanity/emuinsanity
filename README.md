@@ -23,4 +23,11 @@
 <p align="center"> <img width= "20" height= "20' alt="thing" src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/purple/94" <ins>
  ୭  ˖  𓌔  pjsk, lads, hsr, alnst, forsaken, dod, sewh, etc ! ♡  𓏻 ✦ <img width= "20" height= "20' alt="thing" src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/purple/95" <ins>
  </p>
+ <p align="center">
+   <a href="https://alienowned.atabook.org/">ata</a>
+   &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+   <a href="https://pronouns.cc/@alienowned">prns.cc</a>
+      &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+   <a href="https://guns.lol/alienowned">guns.lol</a>
+ </p>
 <img width="2048" height="345" alt="image" src="https://github.com/user-attachments/assets/56e66a53-f875-4491-8574-c0cf3fd5b8f1" />
